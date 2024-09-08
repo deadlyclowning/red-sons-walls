@@ -21,6 +21,10 @@
 
 **RedSon rp blog** ➺ [flame-thrwer](https://www.tumblr.com/flame-thrwer)
 
+<strong align="center">
+ 
+I am a system - alters will only front if im under high stress or going through a depressive episode meaning you'll mainly see me (Lyra/host) fronting
+
 <p align="center">
 <img width="600" src="https://64.media.tumblr.com/6a6b303ce8147cd2d4c303a98c350af0/21f098bcf9c3d012-1d/s1280x1920/3785ac97ffa8c34804350c2c0bf9d76dafe890ba.pnj">
 </p> 
