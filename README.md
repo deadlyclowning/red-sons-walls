@@ -9,6 +9,8 @@
  ${\textsf{\color{#dc1717}•✦───✧ ABOUT ME ✧───✦•}}$ 
 </h2 div> 
  
+<div align="center">
+ 
 **Name** ➺ Lyra / Micro
 
 **Age** ➺ 18
@@ -20,6 +22,8 @@
 **Interests** ➺ Hazbin Hotel, baking, arts and crafts, cats, lego monkie kid, fortnite, batim
 
 **RedSon rp blog** ➺ [flame-thrwer](https://www.tumblr.com/flame-thrwer)
+
+</div>
 
 <strong align="center">
  
@@ -40,7 +44,7 @@ We are a system - alters will only front if im under high stress or going throug
 
 <h2 strong div align="center"> 
  ${\textsf{\color{#dc1717}•✦───✧ DNI IF ✧───✦•}}$ 
-</h2 div> 
+</h2 div>
 
 <strong> ${\textsf{\color{#f46b1b} • IF YOU POST ANY SHIPS RELATED TO REDSON }}$ 
 
