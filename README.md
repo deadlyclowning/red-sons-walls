@@ -27,8 +27,7 @@
 
 <strong align="center">
  
-We are a system - alters will only front if im under high stress or going through a depressive episode meaning you'll mainly see me (Lyra/host) fronting
-
+We are a system - alters will only front if under high stress or going through a depressive episode meaning you'll mainly see the host(Lyra) fronting
 <p align="center">
 <img width="600" src="https://64.media.tumblr.com/6a6b303ce8147cd2d4c303a98c350af0/21f098bcf9c3d012-1d/s1280x1920/3785ac97ffa8c34804350c2c0bf9d76dafe890ba.pnj">
 </p> 
@@ -40,6 +39,22 @@ We are a system - alters will only front if im under high stress or going throug
 <div align="center">
  
 ***[F/O list](<https://lyras-blorbos.carrd.co/>) | [Strawpage mailbox](<https://microsmailbox.straw.page/>) | [My tumblr](https://www.tumblr.com/lunarbroadcast)***
+</div>
+
+<h2 strong div align="center"> 
+ ${\textsf{\color{#dc1717}•✦───✧ PONYTOWN ✧───✦•}}$ 
+</h2 div> 
+
+<div align="center">
+
+• I'll usually be in my Soulbond skin vibing with the TCOAAL people or in the doocks looking for roleplays (feel free to say hi!)
+<img width="263" alt="Screenshot 2024-09-05 010227" src="https://github.com/user-attachments/assets/8d9cc827-c3f4-483b-8f3c-00f3b7860368">
+
+• I don't mind people cuddling or interacting! :3
+
+• Will gladly have a conversation! just dont be rude and were good!!
+
+• i have skins that dont have this account linked. For my personal comfort i dont wanna get told to jump all cause of a label (obv i wont be showing them- womp womp🫵🏼)
 </div>
 
 <h2 strong div align="center"> 
