@@ -1,6 +1,4 @@
-<span style="color: #ff4930">❝</span>
-
-### <span style="color: #ff4930">Just making the final adjustments, mother. ❞</span>
+### <span style="color: #ff4930">❝ Just making the final adjustments, mother. ❞</span>
 
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="356" data-orig-width="736"><img src="https://64.media.tumblr.com/798d6d4381742830594d601f1ed024c0/21f098bcf9c3d012-ff/s1280x1920/59fcb0d19318e07a7d75c0ef139ba4f95be2ccdc.pnj" data-orig-height="356" data-orig-width="736" srcset="https://64.media.tumblr.com/798d6d4381742830594d601f1ed024c0/21f098bcf9c3d012-ff/s1280x1920/59fcb0d19318e07a7d75c0ef139ba4f95be2ccdc.pnj 736w" sizes="(max-width: 736px) 100vw, 736px"></figure></div>
 
