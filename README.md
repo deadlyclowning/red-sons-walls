@@ -54,7 +54,7 @@ We are a system - alters will only front if under high stress or going through a
 
 • Will gladly have a conversation! just dont be rude and were good!!
 
-• i have skins that dont have this account linked. For my personal comfort i dont wanna get told to jump all cause of a label (obv i wont be showing them- womp womp🫵🏼)
+• i have skins that dont have this account linked. For my personal comfort i dont wanna get told to jump all cause of a label (obv i wont be showing them- womp womp🫵🏽)
 </div>
 
 <h2 strong div align="center"> 
