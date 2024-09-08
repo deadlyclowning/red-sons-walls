@@ -35,7 +35,7 @@
 
 **<span style="color: #ff4930"><i><b>• IF YOU POST ANY SHIPS RELATED TO REDSON</b></i></span>**
 
-**-i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
+| **i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
 
 **• big 3 pro-contact/neutral-contact paraphiles**
 
@@ -47,9 +47,9 @@
 
 **• zionists/israel supporters**
 
-• antis (nice/neutral are welcome tho! just be nice and respectful)
+**• antis (nice/neutral are welcome tho! just be nice and respectful)**
 
-Im perfectly fine with any type of proshipper! You are all welcome here :D (i have certain shipcest tags blocked for my personal comfort)
+| Im perfectly fine with any type of proshipper! You are all welcome here :D (i have certain shipcest tags blocked for my personal comfort)
 
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="72" data-orig-width="1620"><img src="https://64.media.tumblr.com/6172815e8bb4c9b2a2d20816cb2dc5e9/21f098bcf9c3d012-2d/s2048x3072/552408ddb37757668d69df361c5bdcfb81a01961.jpg" data-orig-height="72" data-orig-width="1620" srcset="https://64.media.tumblr.com/6172815e8bb4c9b2a2d20816cb2dc5e9/21f098bcf9c3d012-2d/s2048x3072/552408ddb37757668d69df361c5bdcfb81a01961.jpg 1620w" sizes="(max-width: 1280px) 100vw, 1280px"></figure></div>
 
