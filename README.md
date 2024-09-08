@@ -2,9 +2,7 @@
 
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="356" data-orig-width="736"><img src="https://64.media.tumblr.com/798d6d4381742830594d601f1ed024c0/21f098bcf9c3d012-ff/s1280x1920/59fcb0d19318e07a7d75c0ef139ba4f95be2ccdc.pnj" data-orig-height="356" data-orig-width="736" srcset="https://64.media.tumblr.com/798d6d4381742830594d601f1ed024c0/21f098bcf9c3d012-ff/s1280x1920/59fcb0d19318e07a7d75c0ef139ba4f95be2ccdc.pnj 736w" sizes="(max-width: 736px) 100vw, 736px"></figure></div>
 
-<span style="color: #ff4930">•✦</span>
-
-## **ABOUT ME**<span class="npf_color_monica">✧</span>
+## •✦───✧ABOUT ME✧───✦•<span class="npf_color_monica">✧</span>
 
 **Name** ➺ Lyra / Micro
 
@@ -32,8 +30,6 @@
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="346" data-orig-width="1280"><img src="https://64.media.tumblr.com/89ffb74cdc88bdae9ff22a1e78212fdb/21f098bcf9c3d012-1d/s1280x1920/48ed5899e1538c241efd377e6a84a71c1815a00f.pnj" data-orig-height="346" data-orig-width="1280" srcset="https://64.media.tumblr.com/89ffb74cdc88bdae9ff22a1e78212fdb/21f098bcf9c3d012-1d/s1280x1920/48ed5899e1538c241efd377e6a84a71c1815a00f.pnj 1280w" sizes="(max-width: 1280px) 100vw, 1280px"></figure></div>
 
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="72" data-orig-width="1620"><img src="https://64.media.tumblr.com/6172815e8bb4c9b2a2d20816cb2dc5e9/21f098bcf9c3d012-2d/s2048x3072/552408ddb37757668d69df361c5bdcfb81a01961.jpg" data-orig-height="72" data-orig-width="1620" srcset="https://64.media.tumblr.com/6172815e8bb4c9b2a2d20816cb2dc5e9/21f098bcf9c3d012-2d/s2048x3072/552408ddb37757668d69df361c5bdcfb81a01961.jpg 1620w" sizes="(max-width: 1280px) 100vw, 1280px"></figure></div>
-
-<span style="color: #ff4930">•✦</span>
 
 ### •✦─────✧DNF IF✧────✦•<span class="npf_color_monica">✧</span>
 
