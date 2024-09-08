@@ -1,4 +1,4 @@
-<p style="text-align:center;">❝ Just making the final adjustments, mother. ❞</p>
+### <span style="color: #ff4930">❝ Just making the final adjustments, mother. ❞</span>
 
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="356" data-orig-width="736"><img src="https://64.media.tumblr.com/798d6d4381742830594d601f1ed024c0/21f098bcf9c3d012-ff/s1280x1920/59fcb0d19318e07a7d75c0ef139ba4f95be2ccdc.pnj" data-orig-height="356" data-orig-width="736" srcset="https://64.media.tumblr.com/798d6d4381742830594d601f1ed024c0/21f098bcf9c3d012-ff/s1280x1920/59fcb0d19318e07a7d75c0ef139ba4f95be2ccdc.pnj 736w" sizes="(max-width: 736px) 100vw, 736px"></figure></div>
 
@@ -31,7 +31,7 @@
 
 ### •✦─────✧DNF IF✧────✦•<span class="npf_color_monica">✧</span>
 
-**<span style="color: #ff4930"><i><b>• IF YOU POST ANY SHIPS RELATED TO REDSON</b></i></span>**
+**<span style="color: #ff4930">• IF YOU POST ANY SHIPS RELATED TO REDSON</b></i></span>**
 
 > **i am VERY possesive over redson. I do nooot feel comfortable any ships with him (that sadly includes other selfships)**
 
@@ -47,21 +47,18 @@
 
 **• antis (nice/neutral are welcome tho! just be nice and respectful)**
 
-> Im perfectly fine with any type of proshipper! You are all welcome here :D (i have certain shipcest tags blocked for my personal comfort)
+> **Im perfectly fine with any type of proshipper! You are all welcome here :D (i have certain shipcest tags blocked for my personal comfort)**
 
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="72" data-orig-width="1620"><img src="https://64.media.tumblr.com/6172815e8bb4c9b2a2d20816cb2dc5e9/21f098bcf9c3d012-2d/s2048x3072/552408ddb37757668d69df361c5bdcfb81a01961.jpg" data-orig-height="72" data-orig-width="1620" srcset="https://64.media.tumblr.com/6172815e8bb4c9b2a2d20816cb2dc5e9/21f098bcf9c3d012-2d/s2048x3072/552408ddb37757668d69df361c5bdcfb81a01961.jpg 1620w" sizes="(max-width: 1280px) 100vw, 1280px"></figure></div>
-
-<span style="color: #ff4930">•✦</span>
-
 
 ## •✦────✧CREDITS✧────✦•<span class="npf_color_monica">✧</span>
 
 
-• patern dividers (stars and moons, heart tuffted, etc) ➺ ([cafekitsune](<https://www.tumblr.com/cafekitsune>))
+**• patern dividers (stars and moons, heart tuffted, etc) ➺ ([cafekitsune](<https://www.tumblr.com/cafekitsune>))**
 
-• bar dividers ➺ ([peachesboard](<https://www.tumblr.com/peachesboard>))
+**• bar dividers ➺ ([peachesboard](<https://www.tumblr.com/peachesboard>))**
 
-• redson icon in the userboxes ➺ [azuremist](<https://www.tumblr.com/azuremist/707024698488324096/i-made-an-hq-version-of-red-sons-icon-which-can>)
+**• redson icon in the userboxes ➺ [azuremist](<https://www.tumblr.com/azuremist/707024698488324096/i-made-an-hq-version-of-red-sons-icon-which-can>)**
 
-• redson userboxes ➺ mee :3c
+**• redson userboxes ➺ mee :3c**
 
