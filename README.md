@@ -2,8 +2,7 @@
  ${\textsf{\color{#dc1717}❝ Just making the final adjustments, mother. ❞}}$ 
 </h1> 
 <p align="center">
-<img width="600" src="![tumblr_0ee7ac9317bd4427baf7645e3cd69ea4_6d62539e_2048](https://github.com/user-attachments/assets/f463ea46-7ed3-41ea-b0f4-2f9b8b0fa649)
-">
+<img width="600" src="![tumblr_0ee7ac9317bd4427baf7645e3cd69ea4_6d62539e_2048](https://github.com/user-attachments/assets/f463ea46-7ed3-41ea-b0f4-2f9b8b0fa649)">
 </p> 
 
 <h2 strong div align="center"> 
