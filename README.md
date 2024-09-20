@@ -96,6 +96,8 @@ We are a system - alters will only front if under high stress or going through a
 
 **• [MissSkunky](https://github.com/MissSkunky) ➺ i had to use their README as a reference to figure out the whole coding stuff(mainly aligning, color, and pictures)- check them out they're so cool istgg**
 
+**• RedSon graphics ➺ A ciel alter who is gone- i requested these before he went away so i thought i'd finally use them (i didnt talk to him alot but they were a cool person very funky)
+
 <p align="center">
 <img width="600" src="https://64.media.tumblr.com/89ffb74cdc88bdae9ff22a1e78212fdb/21f098bcf9c3d012-1d/s1280x1920/48ed5899e1538c241efd377e6a84a71c1815a00f.pnj">
 </p> 
