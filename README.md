@@ -1,8 +1,5 @@
-<h1 align="center"> 
- ${\textsf{\color{#dc1717}❝ Just making the final adjustments, mother. ❞}}$ 
-</h1> 
 <p align="center">
-<img width="600" src="https://github.com/user-attachments/assets/68a4efba-ad82-4c13-9b20-3daaa2a459d0">
+<img width="600" src="https://github.com/user-attachments/assets/39eb402b-4789-47d5-b641-92f133453eef">
 </p> 
 
 
